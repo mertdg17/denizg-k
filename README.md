@@ -1,0 +1,2 @@
+# denizg-k
+Benim CV
