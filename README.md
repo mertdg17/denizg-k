@@ -1,2 +1,2 @@
 # denizg-k
-Benim CV
+Deneme 
